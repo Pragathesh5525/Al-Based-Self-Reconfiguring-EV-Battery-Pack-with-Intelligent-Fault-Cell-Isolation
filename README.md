@@ -1,0 +1,1 @@
+# Al-Based-Self-Reconfiguring-EV-Battery-Pack-with-Intelligent-Fault-Cell-Isolation
